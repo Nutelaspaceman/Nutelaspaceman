@@ -1,8 +1,8 @@
 # Hello random guy :D
 
-My name is nsm, I skid and barely code in java for a living
+🙀
 
-I am working on: experium
+I am working on: nothing
 
 For any questions contact me here:
 
